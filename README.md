@@ -1,1 +1,0 @@
-# manoskout.github.io
